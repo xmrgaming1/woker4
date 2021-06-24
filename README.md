@@ -1,0 +1,2 @@
+# woker4
+xmrgaming
